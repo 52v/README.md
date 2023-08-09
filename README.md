@@ -1,4 +1,4 @@
-<img align="left" src="https://www11.0zz0.com/2023/08/09/00/635580359.png">
+<img align="left" src="https://www5.0zz0.com/2023/08/09/00/787453399.png">
 
 [![Discord](https://img.shields.io/badge/-@CallMeJustSaud-313131?style=flat-square&labelColor=313131&logo=twitter&logoColor=white&color=313131)](https://twitter.com/CallMeJustSaud)  
 
