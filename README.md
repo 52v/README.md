@@ -1,4 +1,4 @@
-<img align="left" src="https://pngtree.com/freepng/pixel-abstract-glitch-skull-pixel-style_6470581.html">
+<img align="left" src="https://up4net.com/2V8/pixel.png">
 
 [![Discord](https://img.shields.io/badge/-@CallMeJustSaud-313131?style=flat-square&labelColor=313131&logo=twitter&logoColor=white&color=313131)](https://twitter.com/CallMeJustSaud)  
 
